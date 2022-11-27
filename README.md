@@ -1,1 +1,1 @@
-<size=70%>Become a sponsor and get a shoutout here!
+Become a sponsor and get a shoutout here!
