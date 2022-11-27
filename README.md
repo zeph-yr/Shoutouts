@@ -1,1 +1,1 @@
-Become a sponsor and get a shoutout here!
+Become a supporter and get a shoutout here!
