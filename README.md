@@ -1,1 +1,1 @@
-Become a supporter and get a shoutout here!
+Become a Supporter and get your name featured here!
