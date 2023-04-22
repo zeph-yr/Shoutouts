@@ -1,5 +1,4 @@
-Become a Supporter and get your name featured here!
-
-Lumberjack462
-Anonymous donor
-Turbospinecho
+Become a Supporter and get your name featured here!\n
+Lumberjack462\n
+Anonymous donor\n
+Turbospinecho\n
