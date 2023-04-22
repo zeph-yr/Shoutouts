@@ -1,4 +1,4 @@
-Thank you for your love and support!❤️
+Thank You For Your Support!❤
 CrazyLttle
 thesquidgodhd
 riylia
